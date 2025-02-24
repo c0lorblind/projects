@@ -1,0 +1,2 @@
+for school
+free use
